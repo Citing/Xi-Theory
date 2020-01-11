@@ -14,8 +14,10 @@
   * 不管你看不看得进去，务必用10分钟的时间认真阅读[会议公报](http://www.xinhuanet.com/politics/2019-10/31/c_1125178024.htm)。
   * 然后再用10分钟把公报要点总结背下来。
 
-## 10:30待补充：
-* 浙江实践
+## 浙江实践：
+* [千万工程](http://zjnews.zjol.com.cn/zjnews/201901/t20190101_9129976.shtml)：美丽乡村
+* [八八战略](https://baijiahao.baidu.com/s?id=1606328831941874383&wfr=spider&for=pc)
+* [红船精神](http://dangjian.people.com.cn/n1/2017/1201/c117092-29679211.html)
 
 ## 时事随时想到随时补充：
 * 新任澳门特首叫贺一诚
